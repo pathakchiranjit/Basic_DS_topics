@@ -5,3 +5,7 @@ https://www.linkedin.com/posts/chiranjit-pathak-2261892a_confusionmatrixcp-activ
 https://www.linkedin.com/posts/chiranjit-pathak-2261892a_info-theory-activity-6730299133489385472-9hLX
 
 https://www.linkedin.com/posts/chiranjit-pathak-2261892a_r-squared-vs-adjusted-activity-6722313807269515264-CKOa
+
+https://www.linkedin.com/posts/chiranjit-pathak-2261892a_dtale-library-activity-6720715931607166976-Zs3u
+
+
